@@ -5,3 +5,5 @@ Die S2 befindet sich noch in Bearbeitung.
 
 Die Sammlung umfasst derzeit 35 Dokumente.
 Weitere werden hinzugefügt, sobald sie fertiggestellt sind.
+
+Spenden kannst du hier: https://www.paypal.com/donate/?hosted_button_id=H2VSQT8WQUH4E
