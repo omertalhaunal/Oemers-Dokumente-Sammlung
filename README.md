@@ -3,7 +3,7 @@ Nach Fertigstellung enthält die Sammlung alle Ömers Dokumente der Klassen 10 b
 Aktuell sind alle Inhalte der 10. Klasse, der S1 und der S2 enthalten. 
 Die S3 befindet sich noch in Bearbeitung.
 
-Die Sammlung umfasst derzeit 74 Dokumente.
+Die Sammlung umfasst derzeit 87 Dokumente.
 Weitere werden hinzugefügt, sobald sie fertiggestellt sind.
 
 Spenden kannst du hier: https://www.paypal.com/donate/?hosted_button_id=H2VSQT8WQUH4E
